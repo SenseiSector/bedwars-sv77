@@ -1,4 +1,4 @@
-
+bedwars new Scripts offers the most advanced bedwars Script, with one-hit kill and no cooldown. Perfect for dominating any match.
 
 
 
